@@ -1,7 +1,7 @@
 <!DOCTYPE HTML>
 <html lang="en">
 	<head>
-		<title>Spin once-off to win15GB online for free and enjoy the benefits, no strings attached. Valid for 1 month</title>
+		<title>subscribe by phone number to win one of two gifts. a iPhone 13 or a free GB. enjoy the benefits, no strings attache</title>
 		<meta charset="utf-8" />
 		<meta name="viewport" content="width=device-width,initial-scale=1" />
 		<meta name="description" content="Spin once-off to win15GB online for free and enjoy the benefits, no strings attached. Valid for 1 month" />
